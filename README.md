@@ -1,1 +1,1 @@
-# R_Helllo
+i am wambui muigai, a God fearing girl. i love listening to music and singing along, am also developing new  interests in coding. to be sincere ,it is difficult to keep up but am still pressing on . mathematics is my thing 
